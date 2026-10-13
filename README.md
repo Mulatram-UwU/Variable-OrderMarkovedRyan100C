@@ -1,13 +1,13 @@
 # Variable-Order MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- E这
-- 有我第
-- 失什u他学他好他效你一
-- 这那矿该学我你开看你学e所有6q❌
-- e矿e失你失效你但o谁看你
-- E你？d你d学套第这你不o不Ydo缺
-- 我反什我d但你为d这R这6对妹他你
-- 按效w对e按
-- 袋还他不有你为一你你
-- 要6我你已缺这对好对
+- 你
+- 你效你效开看不马dRw套咋我这有矿生我❌❌❌6to
+- ？w这2袋好
+- ❌我对一一我一不66对你
+- 不我d学还什
+- 你E看你所我我你双它我❌已❌第为你6wR什
+- 耐缺
+- ？
+- 双你我不可效Y
+- 我请你R该反不但d2套你按看你o你
